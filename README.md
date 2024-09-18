@@ -3,10 +3,10 @@
 Free Robux is by creating a world or game in Roblox. You can gather a couple of friends and enter the world to get Robux. Additionally, if one or more players have a premium subscription, you earn more Robux. This method can be a little tricky. That is why you can learn how to make a Roblox game and get earnings. You can take the easy way out by getting friends in the world and earning Robux, but we would suggest making an engaging and quality game to get more players genuinely.
 
 
-✅ **[CLICK HERE TO GET NOW FREE](https://robloxfreerobuxlinks.wordpress.com/)**
+✅ **[CLICK HERE TO GET NOW FREE](https://cutt.ly/1k-rblox-free-robux)**
 
 
-✅ **[CLICK HERE TO GET NOW FREE](https://robloxfreerobuxlinks.wordpress.com/)**
+✅ **[CLICK HERE TO GET NOW FREE](https://cutt.ly/1k-rblox-free-robux)**
 
 
 Roblox Promo Codes List
